@@ -5,7 +5,7 @@
  How to reach me email me at phalanett@yahoo.com 
   pronouns: bot aviator 
   Fun fact: moneying always
-  helping others secc
+  helping others secceed
 keeping others in the loop
 
 <!---
